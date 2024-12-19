@@ -3,7 +3,7 @@
 - 🌱 I finished my course on graphics design from TechyScholars Ng.
 - 🌱 I took a course on product design with Ladies in Tech Africa via The Incubator Hub.
 - 💞️ I’m looking to collaborate on web based projects, software development and graphics design.
-- 📫 How to reach me: instagram- thepraiseblessing, whatsapp- 09072209680, email: praiseb416@gmail.com or Linkedin- Praise (Oluwatimileyin) Blessing
+- 📫 How to reach me: instagram-https://www.instagram.com/thepraiseblessing/, whatsapp- 09072209680, email: praiseb416@gmail.com or Linkedin- https://www.linkedin.com/in/praise-blessing-a115821b3/
 - 💡 Fun fact: I love designing
 
 <!---
