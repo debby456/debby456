@@ -1,9 +1,9 @@
 - 👋 Hi, I’m Blessing O. Praise
-- 👀 I’m interested in Software Engineering and development.
-- 🌱 I’m currently learning Software Engineering as a student of ALX Africa and graphics design as a student of TechyScholars Ng.
-- 🌱 I’m also currently learning digital Marketing.
+- 👀 I’m currently a graphics designer and a product designer.
+- 🌱 I finished my course on graphics design from TechyScholars Ng.
+- 🌱 I took a course on product design with Ladies in Tech Africa via The Incubator Hub.
 - 💞️ I’m looking to collaborate on web based projects, software development and graphics design.
-- 📫 How to reach me: instagram- debbie_18, whatsapp- 09021375192, email: praiseb416@gmail.com
+- 📫 How to reach me: instagram- thepraiseblessing, whatsapp- 09072209680, email: praiseb416@gmail.com or Linkedin- Praise (Oluwatimileyin) Blessing
 - 💡 Fun fact: I love designing
 
 <!---
